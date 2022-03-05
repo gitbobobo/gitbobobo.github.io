@@ -1,5 +1,6 @@
 # VOL.3436 - 「ONE · 一个」
-![](http://image.wufazhuce.com/FtBjRiRyeF48RhrAdBwS1-fZCLxx)
+
+![](https://bobo-image.oss-cn-beijing.aliyuncs.com/blog/20220305114420.png)
 
 VOL.3436 摄影 | Marek Szturc
 
