@@ -3,7 +3,6 @@
 
 VOL.3436 摄影 | Marek Szturc
 
-4
 
 Mar. 2022
 
